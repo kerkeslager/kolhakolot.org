@@ -1,1 +1,1 @@
-# tec
+# kolhakolot.org
